@@ -1,1 +1,1 @@
-"# Laporan-Akhir-Pemrosesan-Sinyal-Multimedia---26" 
+# Laporan Akhir Pemrosesan Sinyal Multimedia - 26
